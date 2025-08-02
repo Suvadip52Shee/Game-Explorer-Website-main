@@ -1,1 +1,1 @@
-Game Explorer Website seamless browsing experience for developers.
+Game Explorer Website seamless browsing experience for game lovers.
